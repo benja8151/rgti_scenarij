@@ -1,0 +1,1 @@
+# rgti_scenarij
